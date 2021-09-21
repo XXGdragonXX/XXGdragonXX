@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @XXGdragonXX
-- 👀 I’m interested in Health and fitness
+- 👀 I’m interested in Health&fitness , Data science and sports
 - 🌱 I’m currently looking for a job
 - 📫 How to reach me ... Mail - nishadchaoji@gmail.com
 
